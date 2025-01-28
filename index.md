@@ -48,7 +48,7 @@ Stay tuned for updates!
 
 We'd love to hear from you! Reach out to us for questions, collaborations, or more information:
 
-- **Email:** [ankur.mathur@innovate3.org](mailto:ankur.mathur@innovate3.org)
+- **Email:** [admin@innovate3.org](mailto:admin@innovate3.org)
 
 
 ---
