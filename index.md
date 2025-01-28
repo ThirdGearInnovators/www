@@ -48,8 +48,8 @@ Stay tuned for updates!
 
 We'd love to hear from you! Reach out to us for questions, collaborations, or more information:
 
-- **Email:** [info@thirdgearinnovators.org](mailto:info@thirdgearinnovators.org)
-- **Social Media:** Follow us on [Instagram](#), [Facebook](#), and [Twitter](#).
+- **Email:** [ankur.mathur@innovate3.org](mailto:ankur.mathur@innovate3.org)
+
 
 ---
 
