@@ -59,6 +59,9 @@ We'd love to hear from you! Reach out to us for questions, collaborations, or mo
 - **Ankur Mathur**: Board Member and Founder
 - **Shreya Marhur**: Board Member and Founder
 - **Rajesh Bansal**: Board Member and Founder
+
+
+
 ---
 
 ### Copyright
