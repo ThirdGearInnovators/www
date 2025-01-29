@@ -51,6 +51,14 @@ We'd love to hear from you! Reach out to us for questions, collaborations, or mo
 - **Email:** [admin@innovate3.org](mailto:admin@innovate3.org)
 
 
+
+---
+
+## Board Members
+
+- **Ankur Mathur**: Board Member and Founder
+- **Shreya Marhur**: Board Member and Founder
+- **Rajesh Bansal**: Board Member and Founder
 ---
 
 ### Copyright
